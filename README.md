@@ -6,7 +6,7 @@ ABOUT ME
 
 I'm passionate about technology 💻 and design 🎨
 I love learning new skills 📚 and exploring creativity ✨
-Currently studying Information Communication Technology 📖 and graphic design 🎨
+Currently working on graphic design 🎨
 In my free time, I enjoy experimenting with new design tools 🛠️
 Always looking for opportunities to grow and innovate 🚀
 
